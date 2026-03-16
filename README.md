@@ -1,0 +1,1 @@
+1-8 you change fractal type wasdzxcv you change music climax!! fractals and music what a nice combo! Copy-paste the file on your notepad then save as .html double click the file and experiment with fractals and music nice and simple.
